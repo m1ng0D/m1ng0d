@@ -1,4 +1,4 @@
-### Eaee eu sou o Mingoti desenvolvedor Web e Mobile! 👋
+### Eaee eu sou o Mingoti, desenvolvedor Web e Mobile! 👋
 
 **Sobre mim**
 
